@@ -10,5 +10,6 @@ Our corporate mission is to support the process of strategic change. We guide co
 
  
 
-Our role is to act as a trusted advisor, providing objective and results-oriented analysis, solutions and implementation.      
-            
+Our role is to act as a trusted advisor, providing objective and results-oriented analysis, solutions and implementation.   
+
+   CONTACT US VIA:254 700 3335         
